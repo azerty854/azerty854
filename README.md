@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with code
 - 💬 Ask me about nothing
 - 📫 How to reach me: stetiennethomas@gmail.com
-- 😄 Pronouns: god of war / god of sex (Sex Machine)
-- ⚡ Fun fact: i'm virgin
+- 😄 Pronouns: He
+- ⚡ Fun fact: idk
 -->
